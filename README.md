@@ -1,6 +1,6 @@
 # Induction Programme
 **By:** Vishnu  
-**Course:** Btech. ME  
+**Course:** Btech. ME 
 **Section:** MEB2 
 
 
