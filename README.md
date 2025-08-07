@@ -32,3 +32,17 @@ After Break,The day continued with **English and Mathematics Proficiency Tests**
 
 The day concluded on a joyful note, filled with laughter, learning, and a sense of accomplishment—making Day 2 both memorable and impactful.
 
+## Day-3 (4/08/2025)
+📅 Day 3 Highlights – Orientation Week
+The third day of the induction programme unfolded with a series of impactful sessions designed to inspire, inform, and ignite curiosity among students.
+
+### Causmic Club Introduction
+The day began with an energetic session led by the Causmic Club, where members shared insights into their roles and responsibilities. They elaborated on how the team collaboratively organizes large-scale campus events, secures sponsorships, and maintains professional relationships with sponsoring organizations. The club emphasized key values such as teamwork, leadership, creativity, and strategic planning. Students gained a behind-the-scenes look at how events are conceptualized, executed, and sustained through effective communication and resource management.
+
+### Universal Human Values – II by Dr. Priya Darshini
+In the second session, Dr. Priya Darshini Ma’am delivered a soul-enriching lecture on Universal Human Values – II. She spoke about the importance of living a life rooted in happiness, peace, and harmony. Her message encouraged students to move beyond materialistic desires—such as fashion, gadgets, and external appearances—and instead focus on nurturing inner values and emotional well-being. To reinforce this, she assigned a reflective activity: students were asked to document their daily routines, identify what excites them, and explore what truly brings them happiness.
+
+### Mechanical Engineering Orientation by Prof. Jaswant Singh
+The final session of the day was conducted by Prof. Jaswant Singh, who introduced students to the fundamentals of Mechanical Engineering. He discussed the branch’s core principles, its relevance in modern industry, and the diverse career paths it offers. The session included an interactive discussion on why students chose mechanical engineering, helping them connect personal interests with academic goals. Prof. Singh also highlighted the growing importance of basic coding knowledge in the field, explaining how computational skills are becoming essential for innovation and design in mechanical systems.
+
+
