@@ -4,7 +4,8 @@
 **Section:** MEB2 
 
 
-## Day-1 (30/07/2025) 
+## Day-1 (30/07/2025)
+
 The induction programme started **at 8:30 AM** with blessings from Gurudwara Sahib of the college.
 The day began with a peaceful *Path and Kirtan* at the College Gurudwara Sahib, setting a spiritual tone for the journey ahead. 🙏
 Then after that, We were treated with refreshments at 9:30 AM .
@@ -22,6 +23,7 @@ After th, students visited their respective departments for orientation, meeting
 A day full of inspiration, tradition, and new beginnings! 🌟
 
 ## Day-2 (1/08/2025)
+
 **Day 2 unfolded as a blend of emotional insight, interactive learning, and academic evaluation.** 
 
 The day began with an inspiring session by **Dr. Priya Darshini Ma’am**, who spoke about the subtle yet powerful difference between excitement and happiness. She emphasized that while excitement is often short-lived and externally triggered, true happiness stems from inner peace and emotional stability. Her talk offered practical guidance on how to lead a peaceful life by managing overthinking, controlling anger, and cultivating mindfulness. The session encouraged students to reflect deeply on their emotional well-being and adopt healthier mental habits.
@@ -45,4 +47,12 @@ In the second session, Dr. Priya Darshini Ma’am delivered a soul-enriching lec
 ### Mechanical Engineering Orientation by Prof. Jaswant Singh
 The final session of the day was conducted by Prof. Jaswant Singh, who introduced students to the fundamentals of Mechanical Engineering. He discussed the branch’s core principles, its relevance in modern industry, and the diverse career paths it offers. The session included an interactive discussion on why students chose mechanical engineering, helping them connect personal interests with academic goals. Prof. Singh also highlighted the growing importance of basic coding knowledge in the field, explaining how computational skills are becoming essential for innovation and design in mechanical systems.
 
+## Day-4 (5/08/2025)
+
+📅 Day 4 Highlights 
+Day 4 was a vibrant mix of engineering passion and nutritional wisdom, offering students a well-rounded experience.
+
+The afternoon began with an insightful session by Mr. Gautam Murria, a senior from D4-ME, who introduced the world of motorsports and its strong connection to Mechanical Engineering. He explained how motorsports serve as a practical playground for mechanical concepts, from vehicle dynamics to precision engineering. Central to his talk was the concept of the “3 M’s” – Machine, Mind, and Minutes. The Machine represents the technical backbone of motorsports, requiring deep mechanical knowledge. The Mind stands for strategic thinking and mental resilience, while Minutes highlight the critical role of time—whether in race strategy, pit stops, or design cycles. Mr. Murria also gave an overview of the motorsport industry, its career potential, and introduced students to the college-level motorsport competitions, encouraging active participation and hands-on learning.
+
+Following this, the day took a wholesome turn with an expert lecture by Mrs. Shaffy Makkar on “Millets as Super Food”. She emphasized the nutritional richness of millets, their easy cultivation, and their role in promoting sustainable agriculture. Students were introduced to various types of millets—like ragi, bajra, and jowar—and their individual health benefits, including improved digestion, immunity, and energy levels. Mrs. Makkar also shared practical tips on how to cook millets deliciously, offering proper procedures and recipes that make them both healthy and tasty. Her session encouraged students to adopt millets into their daily diet for a balanced and nourishing lifestyle.
 
