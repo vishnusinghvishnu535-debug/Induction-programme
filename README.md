@@ -21,11 +21,10 @@ He rightly emphasized—success begins with embracing every opportunity college 
 After th, students visited their respective departments for orientation, meeting faculty and exploring labs and facilities.
 A day full of inspiration, tradition, and new beginnings! 🌟
 
+## Day-2 (1/08/2025)
+**Day 2 unfolded as a blend of emotional insight, interactive learning, and academic evaluation.** 
+The day began with an inspiring session by **Dr. Priya Darshini Ma’am**, who spoke about the subtle yet powerful difference between excitement and happiness. She emphasized that while excitement is often short-lived and externally triggered, true happiness stems from inner peace and emotional stability. Her talk offered practical guidance on how to lead a peaceful life by managing overthinking, controlling anger, and cultivating mindfulness. The session encouraged students to reflect deeply on their emotional well-being and adopt healthier mental habits.
+Later, **Dr. Arvind Dhingra Sir** conducted an engaging interactive session that brought energy and enthusiasm into the room. With the help of student volunteers, he facilitated two games that were not only fun but also designed to promote teamwork, quick thinking, and active participation. These activities created a lively atmosphere and helped students connect with each other in a meaningful way.
+The day continued with **English and Mathematics Proficiency Tests**, allowing students to assess their academic strengths and identify areas for improvement. These evaluations were an important step in preparing for future academic challenges.
+The day concluded on a joyful note, filled with laughter, learning, and a sense of accomplishment—making Day 2 both memorable and impactful.
 
-
-
-
-
-Er. D.S.Bhogal, AP (MPE)
-🔹 Dr. Priya Darshni on “Universal Human Values - 1”
-🔹 Dr. Arvind Dhingra on student development via STEP & TAC
